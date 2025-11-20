@@ -7,3 +7,4 @@
 一些日志也更新在这里好了
 亚托莉游戏官网：https://atri-mdm.com/
 亚托莉动画官网：https://atri-anime.com/
+亚托莉的大冒险岛：https://atri-anime.com/special/adventure/
